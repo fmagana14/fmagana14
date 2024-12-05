@@ -1,6 +1,6 @@
 ### Just your average developer
 
-- 🔭 I’m currently working on: top secret
+- 🔭 I’m currently working on: top secret 🤫
 - 📫 How to reach me: fmagana26lax@gmail.com
 
 
